@@ -1,12 +1,10 @@
 # A list of Quotes
 
-"The day before something is a breakthrough, it's a crazy idea."
- - Peter Diamandis
+"The day before something is a breakthrough, it's a crazy idea." - Peter Diamandis
 
 ---
 
-"Without a target, you'll miss it every time."
- - Peter Diamandis
+"Without a target, you'll miss it every time." - Peter Diamandis
 
 ---
 
@@ -14,28 +12,23 @@
 
 The teach gets up to prepare a large pot of coffee and comes back with a tray that contains a variety of cups. Some are made of Cristal, some are made of silver, and some are cheap plastic cups. He asks his students to pour the coffee, and they all reach for most beautiful and expensive cups available. When they sit back down the teacher acknowledges the most beautiful cups, but then point out that what they all really wanted was coffee. Regardless of the cup, the coffee was the same. 
 
-"If social status, fashion, image position, social accepting are like the cup," he says, "then the life is like the coffee. Why do we try so hard to drink from a fancy cup, when all we want is good coffee. If you want to leave a stress-free life” he says, "ignore the cup and just enjoy the coffee." 
- - An Arabian folktale
+"If social status, fashion, image position, social accepting are like the cup," he says, "then the life is like the coffee. Why do we try so hard to drink from a fancy cup, when all we want is good coffee. If you want to leave a stress-free life” he says, "ignore the cup and just enjoy the coffee."  - An Arabian folktale
 
 ---
 
-"If you think it's impossible, then it is, for you."
- - Unknown
+"If you think it's impossible, then it is, for you." - Unknown
 
 ---
 
-"Ideas are cheap. Everyone can have one."
- - Unknown
+"Ideas are cheap. Everyone can have one." - Unknown
 
 ---
 
-"The difference between great work and an idea for great work is am the sweat, time, effort and agony that go into engaging great idea and turning it into something real."
- - Unknown
+"The difference between great work and an idea for great work is am the sweat, time, effort and agony that go into engaging great idea and turning it into something real." - Unknown
 
 ---
 
-"If you are not perfect in every facet, you are replaceable."
- - Unknown
+"If you are not perfect in every facet, you are replaceable." - Unknown
 
 ---
 
@@ -53,309 +46,247 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 10,000 hours / 10 hour every day =  2 years 8 months and 25 days
 
-10,000 hours / 12 hour every day =  2 years 3 months and 11 days"
- - MK
+10,000 hours / 12 hour every day =  2 years 3 months and 11 days" - MK
 
 ---
 
-"If a tree falls in a forest and no one is around to hear it, does it make a sound?"
- - Unknown
+"If a tree falls in a forest and no one is around to hear it, does it make a sound?" - Unknown
 
 ---
 
-"When life pulls you back, narrow your focus and aim at your goal. Use it like a bow, which launches an arrow towards the bullseye."
- - MK
+"When life pulls you back, narrow your focus and aim at your goal. Use it like a bow, which launches an arrow towards the bullseye." - MK
 
 ---
 
-"The best way to predict the future is to create it."
- - Abraham Lincoln and Peter Drucker
+"The best way to predict the future is to create it." - Abraham Lincoln and Peter Drucker
 
 ---
 
-"The difference between a demanding and not demanding reader is that the later ask no questions and get no answerer."
- - Unknown
+"The difference between a demanding and not demanding reader is that the later ask no questions and get no answerer." - Unknown
 
 ---
 
-"One can have no smaller or greater mastery than mastery of oneself".
- - Leonardo da Vinci 
+"One can have no smaller or greater mastery than mastery of oneself". - Leonardo da Vinci 
 
 ---
 
-"Winning takes talent, to repeat takes character." 
- - John Wooden
+"Winning takes talent, to repeat takes character."  - John Wooden
 
 ---
 
-"Sports don't build character; they reveal it."
- - John Wooden
+"Sports don't build character; they reveal it." - John Wooden
 
 ---
 
-“Vision without action is a daydream, An action without a mission a nightmare.” 
- - Japanese Proverbs
+“Vision without action is a daydream, An action without a mission a nightmare.”  - Japanese Proverbs
 
 ---
 
-"Conception is just the first step, what really matters is execution. An idea need to be improved, implemented and marketed."
- - Unknown
+"Conception is just the first step, what really matters is execution. An idea need to be improved, implemented and marketed." - Unknown
 
 ---
 
-"You should have a healthy disregard for impossible trying to do things that most people would not."
- - Unknown
+"You should have a healthy disregard for impossible trying to do things that most people would not." - Unknown
 
 ---
 
-"For a seed to achieve its greatest expression, it must come completely undone. The shell cracks, its insides come out and everything changes. To someone who doesn't understand growth, it would look like complete destruction."
- - Cynthia Occelli
+"For a seed to achieve its greatest expression, it must come completely undone. The shell cracks, its insides come out and everything changes. To someone who doesn't understand growth, it would look like complete destruction." - Cynthia Occelli
 
 ---
 
-"It’s one thing to write code; it’s another to get it to run."
- - Unknown
+"It’s one thing to write code; it’s another to get it to run." - Unknown
 
 ---
 
-"When you have confidence, you can have a lot of fun. When you have a lot of fun, you can do amazing things.”
- - John Namath
+"When you have confidence, you can have a lot of fun. When you have a lot of fun, you can do amazing things.” - John Namath
 
 ---
 
-"The devil you know is more fun to do battle with, than the devil you don't know."
- - Unknown
+"The devil you know is more fun to do battle with, than the devil you don't know." - Unknown
 
 ---
 
-"The best way to spend one's time is on chasing her or his dreams. Life is way too short to spend it things like watching TV."
- - MK
+"The best way to spend one's time is on chasing her or his dreams. Life is way too short to spend it things like watching TV." - MK
 
 ---
 
-"The stronger the opponent, the sweeter it will be when you defeat it."
- - Unknown
+"The stronger the opponent, the sweeter it will be when you defeat it." - Unknown
 
 ---
 
-"Silence is better than bullshit."
- - Unknown
+"Silence is better than bullshit." - Unknown
 
 ---
 
-"Every stranger might a friend that I don't know yet."
- - Unknown
+"Every stranger might a friend that I don't know yet." - Unknown
 
 ---
 
-“When the aristocracy catches a cold, as it is said, the working class dies of pneumonia.”
- - Unknown
+“When the aristocracy catches a cold, as it is said, the working class dies of pneumonia.” - Unknown
 
 ---
 
-"If you can't explain it simply, you don't understand it well enough."
- - Albert Einstein
+"If you can't explain it simply, you don't understand it well enough." - Albert Einstein
 
 ---
 
-"The future is already here.  It is just not evenly distributed."
- - William Gibson
+"The future is already here.  It is just not evenly distributed." - William Gibson
 
 ---
 
-"Your morality is how you treat people you dislike."
- - Eliezer Yudkowsky
+"Your morality is how you treat people you dislike." - Eliezer Yudkowsky
 
 ---
 
-"Little fish learn to be a big fish in a little pond."
- - Piter Draker
+"Little fish learn to be a big fish in a little pond." - Piter Draker
 
 ---
 
-“Stop consuming, start creating.”
- - Unknown
+“Stop consuming, start creating.” - Unknown
 
 ---
 
-"Perfection is not achievable, it is just an excuse for delaying the launch. Publish the thing, then continuously improve it."
- - Unknown
+"Perfection is not achievable, it is just an excuse for delaying the launch. Publish the thing, then continuously improve it." - Unknown
 
 ---
 
-"Practice, practice, practice! It's not like the practice make perfection, but it makes progress."
- - Unknown
+"Practice, practice, practice! It's not like the practice make perfection, but it makes progress." - Unknown
 
 ---
 
-"Even champions loose rounds."
- - Gary Vaynerchuk
+"Even champions loose rounds." - Gary Vaynerchuk
 
 ---
 
-"If you torture the data long enough, it will confess to anything."
- - Ronald Coase
+"If you torture the data long enough, it will confess to anything." - Ronald Coase
 
 ---
 
-"In the past, we learned in order to work. Now and into the future, we must work to  learn. Those who continuously learn will continue to lead."
- - Unknown
+"In the past, we learned in order to work. Now and into the future, we must work to  learn. Those who continuously learn will continue to lead." - Unknown
 
 ---
 
-"Grow your comfort zone by doing things that make you feel uncomfortable."
- - Unknown
+"Grow your comfort zone by doing things that make you feel uncomfortable." - Unknown
 
 ---
 
-"Some people want it to happen, some wish it would happen, others make it happen."
- - Michael Jordan
+"Some people want it to happen, some wish it would happen, others make it happen." - Michael Jordan
 
 ---
 
-"You have competition every day because you set such high standards for yourself that you have to go out every day and live up to that." 
- - Michael Jordan
+"You have competition every day because you set such high standards for yourself that you have to go out every day and live up to that."  - Michael Jordan
 
 ---
 
-"Every day, I demand more from myself than anybody else could humanly expect. I'm not competing with somebody else. I'm competing with what I'm capable of.'"
- - Michael Jordan
+"Every day, I demand more from myself than anybody else could humanly expect. I'm not competing with somebody else. I'm competing with what I'm capable of.'" - Michael Jordan
 
 ---
 
-“Give people a tool, and they'll code for a day; teach them how to build tools, and they'll code for a lifetime.” 
-
- - Mark Lutz
+“Give people a tool, and they'll code for a day; teach them how to build tools, and they'll code for a lifetime.” - Mark Lutz
 
 ---
 
-"If at first, you don't succeed, try, try again." 
- - William Edward Hickson
+"If at first, you don't succeed, try, try again."  - William Edward Hickson
 
 ---
 
-"All models are wrong, but some are useful." 
- - George Box
+"All models are wrong, but some are useful."  - George Box
 
 ---
 
-"The right to read Is the right to mine."
- - Unknown
+"The right to read Is the right to mine." - Unknown
 
 ---
 
-"Players on the field don't let the crowd noise affect them."
- - Gary Vaynerchuk
+"Players on the field don't let the crowd noise affect them." - Gary Vaynerchuk
 
 ---
 
-"Don’t try to be better than your competitors, try to be different."
- - Unknown
+"Don’t try to be better than your competitors, try to be different." - Unknown
 
 ---
 
-"If you want something you've never had. You must be willing to do something you've never done."
- - Thomas Jefferson
+"If you want something you've never had. You must be willing to do something you've never done." - Thomas Jefferson
 
 ---
 
-"If you have a barrier to entry, you hack your way into figuring it out."
- - Unknown
+"If you have a barrier to entry, you hack your way into figuring it out." - Unknown
 
 ---
 
-"Information wants to be free so share your knowledge and ideas with others. It will make the world a better place."
- - Unknown
+"Information wants to be free so share your knowledge and ideas with others. It will make the world a better place." - Unknown
 
 ---
 
-"Give me a lever long enough and a place to stand, and I will move the world."
- - Archimedes
+"Give me a lever long enough and a place to stand, and I will move the world." - Archimedes
 
 ---
 
-"If I have seen further than other men it's because I have stood on the shoulders of giants". 
- - Sir Isaac Newton
+"If I have seen further than other men it's because I have stood on the shoulders of giants".  - Sir Isaac Newton
 
 ---
 
-"Be the change that you wish to see in the world."
- - Mahatma Gandhi
+"Be the change that you wish to see in the world." - Mahatma Gandhi
 
 ---
 
-"A computer is like Aladdin's lamp. Rub it, and it would do your bidding."
- - Steven Levy
+"A computer is like Aladdin's lamp. Rub it, and it would do your bidding." - Steven Levy
 
 ---
 
-“The key secret to success is not excessive expertise, but the ability to use it. Knowledge is worthless unless it is applied.” 
- -  Max Lukominskyi
+“The key secret to success is not excessive expertise, but the ability to use it. Knowledge is worthless unless it is applied.” -  Max Lukominskyi
 
 ---
 
-“The greatest reward in becoming a millionaire is not the amount of money that you earn. It is the kind of person that you have to become to become a millionaire.” 
- - Jim Rohn
+“The greatest reward in becoming a millionaire is not the amount of money that you earn. It is the kind of person that you have to become to become a millionaire.” - Jim Rohn
 
 ---
 
-"If you want to become good at something in 10 years, you need to start right now."
- - Bill Gates
+"If you want to become good at something in 10 years, you need to start right now." - Bill Gates
 
 ---
 
-"You’ll only pull off "you have to fail to succeed" approach if you create an environment where it’s safe to fail, where nobody is pointing fingers or looking to blame others when something doesn’t work out as planned. You need to take risks as a team. We share in each other’s successes, and we learn together when we fail."
- - Logan Smalley
+"You’ll only pull off "you have to fail to succeed" approach if you create an environment where it’s safe to fail, where nobody is pointing fingers or looking to blame others when something doesn’t work out as planned. You need to take risks as a team. We share in each other’s successes, and we learn together when we fail." - Logan Smalley
 
 ---
 
-"Use a book's table of contents as you would use a road map before taking a trip."
- - Mortimer J. Adler
+"Use a book's table of contents as you would use a road map before taking a trip." - Mortimer J. Adler
 
 ---
 
-"Doesn't matter how many times you have failed, you only need to be right once."
- - Mark Cuban
+"Doesn't matter how many times you have failed, you only need to be right once." - Mark Cuban
 
 ---
 
-“The hero and the coward both feel the same thing. But the hero uses his fear, projects it onto his opponent, while the coward runs. It’s the same thing, fear, but it’s what you do with it that matters.”
- - Cus D'amato
+“The hero and the coward both feel the same thing. But the hero uses his fear, projects it onto his opponent, while the coward runs. It’s the same thing, fear, but it’s what you do with it that matters.” - Cus D'amato
 
 ---
 
-“Some books are to be tasted, others to be swallowed, and some few to be chewed and digested.”
- - Francis Bacon
+“Some books are to be tasted, others to be swallowed, and some few to be chewed and digested.” - Francis Bacon
 
 ---
 
-“A reader lives a thousand lives before he dies, said Jojen. The man who never reads lives only one.”
- - George R.R. Martin
+“A reader lives a thousand lives before he dies, said Jojen. The man who never reads lives only one.” - George R.R. Martin
 
 ---
 
-"You are only as smart as your tribe, and most tribes are dumb."
- - Unknown
+"You are only as smart as your tribe, and most tribes are dumb." - Unknown
 
 ---
 
-"Science is to test crazy ideas; Engineering is to bring these ideas into Business."
- - Andreas Holzinger
+"Science is to test crazy ideas; Engineering is to bring these ideas into Business." - Andreas Holzinger
 
 ---
 
-"Make the most of yourself, for that is all there is of you."
- - Ralph Waldo Emerson
+"Make the most of yourself, for that is all there is of you." - Ralph Waldo Emerson
 
 ---
 
-"You are what you focus on."
- - Unknown
+"You are what you focus on." - Unknown
 
 ---
 
-"You can have a job, career or calling. If you work hard enough, you get to choose."
- - Unknown
+"You can have a job, career or calling. If you work hard enough, you get to choose." - Unknown
 
 ---
 
@@ -388,23 +319,19 @@ you are more blessed than over
 two billion people in the world
 that cannot read anything at all.
 
-You are so blessed in ways you may never even know."
- - Unknown
+You are so blessed in ways you may never even know." - Unknown
 
 ---
 
-"The quickest way to never buy the Porsche company is to buy a Porsche."
- - Gary Vaynerchuk
+"The quickest way to never buy the Porsche company is to buy a Porsche." - Gary Vaynerchuk
 
 ---
 
-"Actions resolve fear."
- - Unknown
+"Actions resolve fear." - Unknown
 
 ---
 
-“Thinking will not overcome fear, but action will.” 
- - W. Clement Stone
+“Thinking will not overcome fear, but action will.” - W. Clement Stone
 
 ---
 
@@ -1734,10 +1661,8 @@ Be adventures, take a risk!"
 
 ---
 
-"Focus every day on being one step closer from making your dream come true."
- - Unknown
+"Focus every day on being one step closer from making your dream come true." - Unknown
 
 ---
 
-"God gave me a body, and I will make from it an armour."
- - Unknown
+"God gave me a body, and I will make from it an armour." - Unknown
