@@ -66,7 +66,7 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 ---
 
-"One can have no smaller or greater mastery than mastery of oneself". - Leonardo da Vinci 
+"One can have no smaller or greater mastery than mastery of oneself". - Leonardo da Vinci
 
 ---
 
@@ -335,1329 +335,1067 @@ You are so blessed in ways you may never even know." - Unknown
 
 ---
 
-“I am not sure that I exist, actually. I am all the writers that I have read, all the people that I have met, all the women that I have loved; all the cities I have visited.”
- - Jorge Luis Borges
+“I am not sure that I exist, actually. I am all the writers that I have read, all the people that I have met, all the women that I have loved; all the cities I have visited.” - Jorge Luis Borges
 
 ---
 
-"The meaning of life is to find your gift. The purpose of life is to give it away."
- - Pablo Picasso
+"The meaning of life is to find your gift. The purpose of life is to give it away." - Pablo Picasso
 
 ---
 
-"One who wants to give light must endure burning."
- - Victor Frankl
+"One who wants to give light must endure burning." - Victor Frankl
 
 ---
 
-"The price of anything is the amount of life you exchange for it."
- - Henry David Thoreau
+"The price of anything is the amount of life you exchange for it." - Henry David Thoreau
 
 ---
 
-"A successful person works continuously and consistently on activities that move them ever closer to their goals. An unsuccessful person is a person who either doesn't have goals or who engages in an activity that is contrary to achieving those goals."
- - Unknown
+"A successful person works continuously and consistently on activities that move them ever closer to their goals. An unsuccessful person is a person who either doesn't have goals or who engages in an activity that is contrary to achieving those goals." - Unknown
 
 ---
 
-"Success is the ability to move from one failure to another without loss of enthusiasm."
- - Winston Churchill
+"Success is the ability to move from one failure to another without loss of enthusiasm." - Winston Churchill
 
 ---
 
-"I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.'" 
- - Muhammad Ali
+"I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.'"  - Muhammad Ali
 
 ---
 
-"You site me your friends, and I will show you your future."
- - Unknown
+"You site me your friends, and I will show you your future." - Unknown
 
 ---
 
-"Entrepreneur is a person that gets things done."
- - Unknown
+"Entrepreneur is a person that gets things done." - Unknown
 
 ---
 
-"To succeed when starting from a position of disadvantage, you need to be willing to do the work that others are unwilling to do."
- - Unknown
+"To succeed when starting from a position of disadvantage, you need to be willing to do the work that others are unwilling to do." - Unknown
 
 ---
 
-"There are no dumb questions. It’s just dumb not to ask."
- - Unknown
+"There are no dumb questions. It’s just dumb not to ask." - Unknown
 
 ---
 
-"To attain knowledge, add things every day. To attain wisdom, remove things every day."
- - Lao Tse
+"To attain knowledge, add things every day. To attain wisdom, remove things every day." - Lao Tse
 
 ---
 
-"I have empathy for everybody who shit on me. Because if they waste the energy to shit on me, they are in such a bad place, that they want somebody else to be there with them."
- - Gary Vaynerchuk
+"I have empathy for everybody who shit on me. Because if they waste the energy to shit on me, they are in such a bad place, that they want somebody else to be there with them." - Gary Vaynerchuk
 
 ---
 
-"Greatness is waking up in the morning and saying to yourself "Today, I am going to move mountains"."
- - Unknown
+"Greatness is waking up in the morning and saying to yourself "Today, I am going to move mountains"." - Unknown
 
 ---
 
-"The reasonable man adapts himself to the world: the unreasonable one persists in trying to adapt the world to himself. Therefore all progress depends on the unreasonable man."
- - George Bernard Shaw
+"The reasonable man adapts himself to the world: the unreasonable one persists in trying to adapt the world to himself. Therefore all progress depends on the unreasonable man." - George Bernard Shaw
 
 ---
 
-"The greatest contribution of a leader is to make other leaders."
- - Unknown
+"The greatest contribution of a leader is to make other leaders." - Unknown
 
 ---
 
-"An expert is a person who has made all the mistakes that can be made in a very narrow field."
- - Niels Bohr
+"An expert is a person who has made all the mistakes that can be made in a very narrow field." - Niels Bohr
 
 ---
 
-"All leaders are readers. You are what you read."
- - Unknown
+"All leaders are readers. You are what you read." - Unknown
 
 ---
 
-"We Are Interested In Others When They Are Interested In Us."
- - Publilius Syrus
+"We Are Interested In Others When They Are Interested In Us." - Publilius Syrus
 
 ---
 
-"Your life is yours to create."
- - Unknown
+"Your life is yours to create." - Unknown
 
 ---
 
-"We make a living by what we get, but we make a life by what we give."
- - Winston Churchill
+"We make a living by what we get, but we make a life by what we give." - Winston Churchill
 
 ---
 
-"A dream without a plan is just a wish." 
- - Katherine Paterson
+"A dream without a plan is just a wish." - Katherine Paterson
 
 ---
 
-"Every no gets me closer to a yes."
- - Mark Cuban
+"Every no gets me closer to a yes." - Mark Cuban
 
 ---
 
-"Wherever I see people doing something the way it's always been done, the way it's 'supposed' to be done, following the same old trends, well, that's just a big red flag to me to go look somewhere else."
- - Mark Cuban
+"Wherever I see people doing something the way it's always been done, the way it's 'supposed' to be done, following the same old trends, well, that's just a big red flag to me to go look somewhere else." - Mark Cuban
 
 ---
 
-"It's not in the dreaming, it's in the doing."
- - Mark Cuban
+"It's not in the dreaming, it's in the doing." - Mark Cuban
 
 ---
 
-"There's no point in getting angry about things that don't matter."
- - Unknown 
+"There's no point in getting angry about things that don't matter." - Unknown
 
 ---
 
-"Work like someone is working 24 hours a day to take it away from you."
- - Mark Cuban
+"Work like someone is working 24 hours a day to take it away from you." - Mark Cuban
 
 ---
 
-"We are interested in the result of that action, not the activity itself."
- - Unknown
+"We are interested in the result of that action, not the activity itself." - Unknown
 
 ---
 
-"Ideas are worthless until we act on them."
- - Unknow
+"Ideas are worthless until we act on them." - Unknow
 
 ---
 
-"Transferring your passion to your job is far easier than finding a job that happens to match your passion."
- -  Seth Godin
+"Transferring your passion to your job is far easier than finding a job that happens to match your passion." -  Seth Godin
 
 ---
 
-"Earn Your Armour"
- - Under Armour
+"Earn Your Armour" - Under Armour
 
 ---
 
-"Turn your hurdles into your hustle, and pains into your passion."
- - George Thomas
+"Turn your hurdles into your hustle, and pains into your passion." - George Thomas
 
 ---
 
-"Hurt people hurt people."
- - Unknown
+"Hurt people hurt people." - Unknown
 
 ---
 
-"Don't be upset by the results you didn't get with the work you didn't do."
- - Unknown
+"Don't be upset by the results you didn't get with the work you didn't do." - Unknown
 
 ---
 
-“Your destiny is determined by the choices you make. Choose now. Choose well.”
- - Tony Robbins
+“Your destiny is determined by the choices you make. Choose now. Choose well.” - Tony Robbins
 
 ---
 
-"If you want to land trophy animals, you have to hunt in places where trophy animals reside."
- - Unknown
+"If you want to land trophy animals, you have to hunt in places where trophy animals reside." - Unknown
 
 ---
 
-"If you don’t like the world, then change it."
- - Unknown
+"If you don’t like the world, then change it." - Unknown
 
 ---
 
-"Don't judge a man until you will walk a mile in his shoes."
- - Unknown
+"Don't judge a man until you will walk a mile in his shoes." - Unknown
 
 ---
 
-"Turn strangers into friends and friends into customers, and customers into salespeople."
- - Seth Godin
+"Turn strangers into friends and friends into customers, and customers into salespeople." - Seth Godin
 
 ---
 
-"You have two ears and one mouth. Talk less, listen more."
- - Unknown
+"You have two ears and one mouth. Talk less, listen more." - Unknown
 
 ---
 
-"Focus on the user, and all else will follow."
- - Unknown
+"Focus on the user, and all else will follow." - Unknown
 
 ---
 
-"It's best to do one thing really, really well."
- - Unknown
+"It's best to do one thing really, really well." - Unknown
 
 ---
 
-"In a world that is changing really quickly, the only strategy that is guaranteed to fail is not taking risks.”
- - Mark Zuckerburg
+"In a world that is changing really quickly, the only strategy that is guaranteed to fail is not taking risks.” - Mark Zuckerburg
 
 ---
 
-"There is one thing in life that you can control: Your own effort."
- - Mark Cuban
+"There is one thing in life that you can control: Your own effort." - Mark Cuban
 
 ---
 
-"If you think that experts are expensive, wait till you hire an amateur."
- - Unknown
+"If you think that experts are expensive, wait till you hire an amateur." - Unknown
 
 ---
 
-"Perfect is an enemy of Done."
- - Unknown
+"Perfect is an enemy of Done." - Unknown
 
 ---
 
-"As iron sharpens iron, so one person sharpens another."
- - Proverbs 27:17
+"As iron sharpens iron, so one person sharpens another." - Proverbs 27:17
 
 ---
 
-"The goal in business is not to find more customers for your product, but to find more products for your customer." 
- - Seth Gordon
+"The goal in business is not to find more customers for your product, but to find more products for your customer." - Seth Gordon
 
 ---
 
-"What you invest your time in defines who you are."
- - Todd Duncan
+"What you invest your time in defines who you are." - Todd Duncan
 
 ---
 
-"All I want to be is a someone who makes new things, and thinks about that."
- - Unknown
+"All I want to be is a someone who makes new things, and thinks about that." - Unknown
 
 ---
 
-"If we wait until we're ready, we'll be waiting for the rest of our lives, let's go."
- - Lemony Snicket
+"If we wait until we're ready, we'll be waiting for the rest of our lives, let's go." - Lemony Snicket
 
 ---
 
-"If your dream doesn't scare you, it isn't big enough."
- - Unknown
+"If your dream doesn't scare you, it isn't big enough." - Unknown
 
 ---
 
-"We choose to go to the moon in this decade and do the other things, not because they are easy, but because they are hard." 
- - John F. Kennedy
+"We choose to go to the moon in this decade and do the other things, not because they are easy, but because they are hard." - John F. Kennedy
 
 ---
 
-"If you feel that you are ready, you waited too long."
- - Unknown
+"If you feel that you are ready, you waited too long." - Unknown
 
 ---
 
-"Fate whispers to the warrior. 'You cannot withstand this storm.' And the warrior whispers back 'I am the storm.' "
- - Unknown
+"Fate whispers to the warrior. 'You cannot withstand this storm.' And the warrior whispers back 'I am the storm.'" - Unknown
 
 ---
 
-"A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be." 
- - Wayne Gretzky
+"A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be."  - Wayne Gretzky
 
 ---
 
-"Don't wish it was easier, wish you were better. Don't wish for fewer problems, wish for more skills. Don't wish for fewer challenges, wish for more wisdom." 
- - Jim Rohn
+"Don't wish it was easier, wish you were better. Don't wish for fewer problems, wish for more skills. Don't wish for fewer challenges, wish for more wisdom." - Jim Rohn
 
 ---
 
-"If you don't ask, you don't get." 
- - Stevie Wonder
+"If you don't ask, you don't get." - Stevie Wonder
 
 ---
 
-"Stop being afraid of what could go wrong and start being excited about what could go right."
- - Unknown
+"Stop being afraid of what could go wrong and start being excited about what could go right." - Unknown
 
 ---
 
-"What got me here, won't get me there."
- - Unknown
+"What got me here, won't get me there." - Unknown
 
 ---
 
-"Don't compare your beginning to someone else's end."
- - Unknown
+"Don't compare your beginning to someone else's end." - Unknown
 
 ---
 
-"We should be too big to take offence and too noble to give it." 
- - Abraham Lincoln 
+"We should be too big to take offence and too noble to give it." - Abraham Lincoln
 
 ---
 
-“Where the mind goes, the body will follow.”
- - Arnold Schwarzenegger
+“Where the mind goes, the body will follow.” - Arnold Schwarzenegger
 
 ---
 
-"Life begins at the end of your comfort zone." 
- - Neale Donald Walsch
+"Life begins at the end of your comfort zone." - Neale Donald Walsch
 
 ---
 
-"None of us is as smart as all of us."
- - Ken H Blanchard
+"None of us is as smart as all of us." - Ken H Blanchard
 
 ---
 
-"Genius is in simplicity."
- - Unknown
+"Genius is in simplicity." - Unknown
 
 ---
 
-"Repetition becomes a rhythm that creates momentum."
- - Unknown
+"Repetition becomes a rhythm that creates momentum." - Unknown
 
 ---
 
-"If it's not a HELL YEAH, it's a NO!"
- - Unknown
+"If it's not a HELL YEAH, it's a NO!" - Unknown
 
 ---
 
-"Can’t couldn’t do it. Could did it all!"
- - Nanny Lou
+"Can’t couldn’t do it. Could did it all!" - Nanny Lou
 
 ---
 
-"Don’t think about competition. Think about domination."
- - Unknown
+"Don’t think about competition. Think about domination." - Unknown
 
 ---
 
-"Try not to become a person of success, but rather try to become a man of value." 
- - Albert Einstein
+"Try not to become a person of success, but rather try to become a man of value." - Albert Einstein
 
 ---
 
-"If you don't love yourself, who will, but if you only love yourself, what are you?"
- - Unknown
+"If you don't love yourself, who will, but if you only love yourself, what are you?" - Unknown
 
 ---
 
-"The risk of a wrong decision is preferable to the terror of indecision."
- - Maimonides
+"The risk of a wrong decision is preferable to the terror of indecision." - Maimonides
 
 ---
 
-"The wound is the place where the light enters you."
- - Rumi
+"The wound is the place where the light enters you." - Rumi
 
 ---
 
-"Life is 10 percent what happens to you and 90 percent how you react to it.”
- - Charles R. Swindoll
+"Life is 10 percent what happens to you and 90 percent how you react to it.” - Charles R. Swindoll
 
 ---
 
-'If you can dream it, you can do it." 
- - Walt Disney
+'If you can dream it, you can do it." - Walt Disney
 
 ---
 
-"Courage is resistance to fear, mastery of fear, not absence of fear." 
- - Mark Twain
+"Courage is resistance to fear, mastery of fear, not absence of fear." - Mark Twain
 
 ---
 
-"Motivation is what gets you started. Habit is what keeps you going."
- - Jim Ryun
+"Motivation is what gets you started. Habit is what keeps you going." - Jim Ryun
 
 ---
 
-"Strategy without tactics is the slowest route to victory. Tactics without strategy are the noise before defeat."
- - Sun Tzu
+"Strategy without tactics is the slowest route to victory. Tactics without strategy are the noise before defeat." - Sun Tzu
 
 ---
 
-"All men can see these tactics whereby I conquer, but what none can see is the strategy out of which victory is evolved."
- - Sun Tzu
+"All men can see these tactics whereby I conquer, but what none can see is the strategy out of which victory is evolved." - Sun Tzu
 
 ---
 
-"Move not unless you see an advantage; use not your troops unless there is something to be gained; fight not unless the position is critical."
- - Sun Tzu
+"Move not unless you see an advantage; use not your troops unless there is something to be gained; fight not unless the position is critical." - Sun Tzu
 
 ---
 
-"If you know the enemy and know yourself, you need not fear the result of a hundred battles. If you know yourself but not the enemy, for every victory gained you will also suffer a defeat. If you know neither the enemy nor yourself, you will succumb in every battle."
- - Sun Tzu
+"If you know the enemy and know yourself, you need not fear the result of a hundred battles. If you know yourself but not the enemy, for every victory gained you will also suffer a defeat. If you know neither the enemy nor yourself, you will succumb in every battle." - Sun Tzu
 
 ---
 
-"Look at life as at school. Every experience can be a new lesson."
- - Unknown
+"Look at life as at school. Every experience can be a new lesson." - Unknown
 
 ---
 
-"Entrepreneurship is an endurance game."
- - Unknown
+"Entrepreneurship is an endurance game." - Unknown
 
 ---
 
-"You’re not much of an entrepreneur, in my opinion, if you don’t have the guts to ride the bull."
- - Kori Ashton
+"You’re not much of an entrepreneur, in my opinion, if you don’t have the guts to ride the bull." - Kori Ashton
 
 ---
 
-"It’s OK to quit today, as long as you show up for work tomorrow."
- - Unknown
+"It’s OK to quit today, as long as you show up for work tomorrow." - Unknown
 
 ---
 
-"Done is better than perfect."
- - Unknown
+"Done is better than perfect." - Unknown
 
 ---
 
-“Don’t become a wandering generality. Be a meaningful specific.”
- - Zig Ziglar
+“Don’t become a wandering generality. Be a meaningful specific.” - Zig Ziglar
 
 ---
 
-"There is no such thing as impossible, it's just a matter of figuring out how." 
- - Haruhiko Tanahashi
+"There is no such thing as impossible, it's just a matter of figuring out how." - Haruhiko Tanahashi
 
 ---
 
-“Feel the fear and do it anyway.”
-  - Susan Jeffers
+“Feel the fear and do it anyway.” - Susan Jeffers
 
 ---
 
-"It is not the critic who counts; not the man who points out how the strong man stumbles, or where the doer of deeds could have done them better. The credit belongs to the man who is actually in the arena, whose face is marred by dust and sweat and blood; who strives valiantly; who errs, and comes short again and again, because there is no effort without error and shortcoming; but who does actually strive to do the deeds; who knows the great enthusiasms, the great devotions; who spends himself in a worthy cause; who at the best knows in the end the triumph of high achievement, and who at the worst, if he fails, at least fails while daring greatly, so that his place shall never be with those cold and timid souls who know neither victory nor defeat."
- - Theodore Roosevelt
+"It is not the critic who counts; not the man who points out how the strong man stumbles, or where the doer of deeds could have done them better. The credit belongs to the man who is actually in the arena, whose face is marred by dust and sweat and blood; who strives valiantly; who errs, and comes short again and again, because there is no effort without error and shortcoming; but who does actually strive to do the deeds; who knows the great enthusiasms, the great devotions; who spends himself in a worthy cause; who at the best knows in the end the triumph of high achievement, and who at the worst, if he fails, at least fails while daring greatly, so that his place shall never be with those cold and timid souls who know neither victory nor defeat." - Theodore Roosevelt
 
 ---
 
-"Before you are a leader, success is all about growing yourself. When you become a leader, success is all about growing others." 
- - Jack Welch
+"Before you are a leader, success is all about growing yourself. When you become a leader, success is all about growing others." - Jack Welch
 
 ---
 
-"There are no right answers, just actions and inactions."
- - Tony Perez
+"There are no right answers, just actions and inactions." - Tony Perez
 
 ---
 
-"Happiness can be found, even in the darkest of times, if one only remembers to turn on the light."
- - Steven Kloves
+"Happiness can be found, even in the darkest of times, if one only remembers to turn on the light." - Steven Kloves
 
 ---
 
-"Entrepreneurship is when one or few people build in the garage a product that they love. Hoping they are not the only ones in the world that do."
- - Guy Kawasaki
+"Entrepreneurship is when one or few people build in the garage a product that they love. Hoping they are not the only ones in the world that do." - Guy Kawasaki
 
 ---
 
-"A life spent resisting temptations is a wasted life."
- - Paulo Coelho
+"A life spent resisting temptations is a wasted life." - Paulo Coelho
 
 ---
 
-"Make sure today counts, because tomorrow may never come."
- - Unknown
+"Make sure today counts, because tomorrow may never come." - Unknown
 
 ---
 
-"Not everyone will understand your journey. That's Fine. 
-It's not their journey to make sense of. It's Yours."
- - Unknown
+"Not everyone will understand your journey. That's Fine.
 
+It's not their journey to make sense of. It's Yours." - Unknown
+
 ---
 
-"If you fail to plan, you are planning to fail!"
- - Benjamin Franklin
+"If you fail to plan, you are planning to fail!" - Benjamin Franklin
 
 ---
 
-"Always strive to get on top in life, because it's the bottom that's overcrowded."
- - Unknown
+"Always strive to get on top in life, because it's the bottom that's overcrowded." - Unknown
 
 ---
 
-"If nothing around you changes, then change the things that are around you."
- - Unknown
+"If nothing around you changes, then change the things that are around you." - Unknown
 
 ---
 
-"If you can't fly, then run, 
-if you can't run, then walk, 
-if you can't walk, then crawl, 
-but whatever you do, you have to keep moving forward." 
- - Martin Luther King Jr.
+"If you can't fly, then run,
 
----
+if you can't run, then walk,
+
+if you can't walk, then crawl,
 
-"I don't need it to be easy, I need it to be worth it." 
- - Lil Wayne
+but whatever you do, you have to keep moving forward." - Martin Luther King Jr.
 
 ---
 
-"Build your own dreams, or someone else will hire you to build theirs." 
- - Farrah Gray 
+"I don't need it to be easy, I need it to be worth it." - Lil Wayne
 
 ---
 
-"If you can dream it you can DO IT." 
- - Unknown
+"Build your own dreams, or someone else will hire you to build theirs." - Farrah Gray
 
 ---
 
-"Life moves pretty fast. If you don't stop and look around once in a while, you could miss it." 
- - Ferris Bueller
+"If you can dream it you can DO IT." - Unknown
 
 ---
 
-"Be OK with what you ultimately can't do, because there is so much you Can do."
- - Sam Berns
+"Life moves pretty fast. If you don't stop and look around once in a while, you could miss it." - Ferris Bueller
 
 ---
 
-"We cannot solve our problems with the same thinking we used when we created them." 
- - Albert Einstein
+"Be OK with what you ultimately can't do, because there is so much you Can do." - Sam Berns
 
 ---
 
-"People are rewarded in public for what they practice for years in private." 
- - Tony Robbins
+"We cannot solve our problems with the same thinking we used when we created them." - Albert Einstein
 
 ---
 
- "You only live once, but if you do it right, once is enough."
- - Mae West
+"People are rewarded in public for what they practice for years in private." - Tony Robbins
 
 ---
 
-"Be so busy giving other people recognition you really don't need it for yourself."
- - Unknown
+ "You only live once, but if you do it right, once is enough." - Mae West
 
 ---
 
-“Life is short.  If there was ever a moment to follow your passion and do something that matters to you, that moment is now.”  
- - Unknown
+"Be so busy giving other people recognition you really don't need it for yourself." - Unknown
 
 ---
 
-“Hard work becomes easy when your work becomes your play.  Never underestimate the value of loving what you do.” 
- - Tim Ferriss
+“Life is short.  If there was ever a moment to follow your passion and do something that matters to you, that moment is now.” - Unknown
 
 ---
 
-“Live what you love, and love what you live. Anything less is a painful and frustrating waste of your precious time.” 
- - Ralph Marston
+“Hard work becomes easy when your work becomes your play.  Never underestimate the value of loving what you do.” - Tim Ferriss
 
 ---
 
-“The heart of human excellence often begins to beat when you discover a pursuit that absorbs you, frees you, challenges you, and gives you a sense of meaning, joy and passion.” 
- - Unknown
+“Live what you love, and love what you live. Anything less is a painful and frustrating waste of your precious time.” - Ralph Marston
 
 ---
 
-"It's your road and yours alone. Others may walk it with you, but no one can walk it for you."
- - Rumi
+“The heart of human excellence often begins to beat when you discover a pursuit that absorbs you, frees you, challenges you, and gives you a sense of meaning, joy and passion.” - Unknown
 
 ---
 
-“Purpose is the reason you journey. Passion is the fire that lights your way.” 
- - Unknown.
+"It's your road and yours alone. Others may walk it with you, but no one can walk it for you." - Rumi
 
 ---
 
-"It's not the things we do in life that we regret on our deathbed, it is the things we do not."
- - Randy Pausch
+“Purpose is the reason you journey. Passion is the fire that lights your way.” - Unknown.
 
 ---
 
-"It is never too late to be what you might have been." 
- - George Eliot
+"It's not the things we do in life that we regret on our deathbed, it is the things we do not." - Randy Pausch
 
 ---
 
-"Fear is nothing more than an obstacle that stands in the way of progress."
- - Unknown
+"It is never too late to be what you might have been." - George Eliot
 
 ---
 
-"Failure is simply the opportunity to begin again, this time more intelligently." 
- - Henry Ford
+"Fear is nothing more than an obstacle that stands in the way of progress." - Unknown
 
 ---
 
-"If you feel like giving up look back on how far you've reached already."
- - Unknown
+"Failure is simply the opportunity to begin again, this time more intelligently." - Henry Ford
 
 ---
 
-"While you are dreaming of success, winners wake up and work hard to achieve it."
- - Unknown
+"If you feel like giving up look back on how far you've reached already." - Unknown
 
 ---
 
-"When life hits you hard, hit back harder."
- - Unknown
+"While you are dreaming of success, winners wake up and work hard to achieve it." - Unknown
 
 ---
 
-"Failure is not a loss it is a mindset."
- - Unknown
+"When life hits you hard, hit back harder." - Unknown
 
 ---
 
-"You will never fail if you never give up!"
- - Unknown
+"Failure is not a loss it is a mindset." - Unknown
 
 ---
 
-"You are on the right path, but you must keep persisting."
- - Unknown
+"You will never fail if you never give up!" - Unknown
 
 ---
 
-"The harder you work, the luckier you get."
- - Gary Player
+"You are on the right path, but you must keep persisting." - Unknown
 
 ---
 
-"Everyday you waste is a day you will never get back."
- - Unknown
+"The harder you work, the luckier you get." - Gary Player
 
 ---
 
-"Truth is the only safe ground to stand on." 
- - Elizabeth Cady Stanton
+"Everyday you waste is a day you will never get back." - Unknown
 
 ---
 
-"Life isn't about finding yourself. Life is about creating yourself." 
- - George Bernard
+"Truth is the only safe ground to stand on." - Elizabeth Cady Stanton
 
 ---
 
-"Pain is temporary, quitting is forever."
- - Unknown
+"Life isn't about finding yourself. Life is about creating yourself." - George Bernard
 
 ---
 
-"There would be nothing to frighten you if you refused to be afraid
- - Gandhi
+"Pain is temporary, quitting is forever." - Unknown
 
 ---
 
-"It's more fun to be a pirate than to join the navy."
- - Steve Jobs
+"There would be nothing to frighten you if you refused to be afraid." - Gandhi
 
 ---
 
-“A lifetime of glory is worth a moment of pain.”
- - Laura Hillenbrand
+"It's more fun to be a pirate than to join the navy." - Steve Jobs
 
 ---
 
-"The people who are crazy enough to think they can change the world are the ones who do."
- - Steve Jobs
+“A lifetime of glory is worth a moment of pain.” - Laura Hillenbrand
 
 ---
 
-"Keep your eye on the prize."
- - Unknown
+"The people who are crazy enough to think they can change the world are the ones who do." - Steve Jobs
 
 ---
 
-"Never trade what you want the most for what you want at the moment."
- - Unknown
+"Keep your eye on the prize." - Unknown
 
 ---
 
-“You create your own universe as you go along.” 
- - Winston Churchill
+"Never trade what you want the most for what you want at the moment." - Unknown
 
 ---
 
-"It isn't about perfection, it is about improvement."
- - Unknown
+“You create your own universe as you go along.” - Winston Churchill
 
 ---
 
-" Your thoughts and your feelings create your life."
- - Unknown
+"It isn't about perfection, it is about improvement." - Unknown
 
 ---
 
-"Whatever you're thinking and feeling today is creating your future."
- - Unknown
+" Your thoughts and your feelings create your life." - Unknown
 
 ---
 
-"Those are my principles, and if you don't like them... well, I have others."
- - Groucho Marx
+"Whatever you're thinking and feeling today is creating your future." - Unknown
 
 ---
 
-"To know is to be."
- - Unknown
+"Those are my principles, and if you don't like them... well, I have others." - Groucho Marx
 
 ---
 
-"When you talk, you are only repeating what you already know. But if you listen, you may learn something new." 
- - Dalai Lama
+"To know is to be." - Unknown
 
 ---
 
-"If you want to win the lottery, you have to make money to buy a ticket.”
- - Lou Bloom (Jake Gyllenhaal)
+"When you talk, you are only repeating what you already know. But if you listen, you may learn something new." - Dalai Lama
 
 ---
 
-"The successful person has the habit of doing the things failures don't like to do."
- - Thomas Edison
+"If you want to win the lottery, you have to make money to buy a ticket.” - Lou Bloom (Jake Gyllenhaal)
 
 ---
 
-"Pain is temporary. But glory lasts forever."
- - Unknown
+"The successful person has the habit of doing the things failures don't like to do." - Thomas Edison
 
 ---
 
-"There is a difference between your mind saying you can’t and your body saying you can’t."
- - Unknown
+"Pain is temporary. But glory lasts forever." - Unknown
 
 ---
 
-"The harder you work, the harder it is to surrender." 
- - Vince Lombardi
+"There is a difference between your mind saying you can’t and your body saying you can’t." - Unknown
 
 ---
 
-"We are what we repeatedly do. Excellence, then, is not an act, but a habit."
- - Aristotle
+"The harder you work, the harder it is to surrender." - Vince Lombardi
 
 ---
 
-“It’s not the customer’s job to know what they want.” 
- - Steve Jobs
+"We are what we repeatedly do. Excellence, then, is not an act, but a habit." - Aristotle
 
 ---
 
-“If I had asked people what they wanted, they would have said faster horses.” 
- - Henry Ford
+“It’s not the customer’s job to know what they want.” - Steve Jobs
 
 ---
 
-"The hero and the coward both feel the same thing, but the hero uses his fear, projects it onto his opponent, while the coward runs. It's the same thing, fear, but it's what you do with it that matters."
- - Cus D'Amato
+“If I had asked people what they wanted, they would have said faster horses.” - Henry Ford
 
 ---
 
-“It is not the strongest of the species that survives, nor the most intelligent that survives. It is the one that is the most adaptable to change.”
- - Charles Darwin
+"The hero and the coward both feel the same thing, but the hero uses his fear, projects it onto his opponent, while the coward runs. It's the same thing, fear, but it's what you do with it that matters." - Cus D'Amato
 
 ---
 
-"Train like an athlete, eat like a nutritionist, sleep like a baby and win like a champion."
- - Unknown
+“It is not the strongest of the species that survives, nor the most intelligent that survives. It is the one that is the most adaptable to change.” - Charles Darwin
 
 ---
 
-"Things which matter most must never be at the mercy of things which matter least."
- - Johann Wolfgang von Goethe
+"Train like an athlete, eat like a nutritionist, sleep like a baby and win like a champion." - Unknown
 
 ---
 
-"I must, I can and I will."
- - Unknown
+"Things which matter most must never be at the mercy of things which matter least." - Johann Wolfgang von Goethe
 
 ---
 
-"Never doubt yourself."
- - Unknown
+"I must, I can and I will." - Unknown
 
 ---
 
-"Try staff and ask for forgiveness."
- - Unknown
+"Never doubt yourself." - Unknown
 
 ---
 
-"One person can be easily wrong, a team is less likely to make a mistake."
- - Unknown
+"Try staff and ask for forgiveness." - Unknown
 
 ---
 
-"The riskiest thing is to take no risks."
- - Unknown
+"One person can be easily wrong, a team is less likely to make a mistake." - Unknown
 
 ---
 
-"Get shit DONE." 
- - Aaron Levie
+"The riskiest thing is to take no risks." - Unknown
 
 ---
 
-"For a Fortune 500, marketing is a spreadsheet. For a start-up, marketing is a whiteboard."
- - Ryan S. Nickel
+"Get shit DONE." - Aaron Levie
 
 ---
 
-"If your organisation requires success before commitment, it will never have either." 
- - Seth Godin
+"For a Fortune 500, marketing is a spreadsheet. For a start-up, marketing is a whiteboard." - Ryan S. Nickel
 
 ---
 
-"I'm not sure where I'm going. I'll lead!"
- - Emmanuelle Heyman
+"If your organisation requires success before commitment, it will never have either." - Seth Godin
 
 ---
 
-"We are all in the gutter, but some of us are looking at the stars." 
- - Oscar Wilde
+"I'm not sure where I'm going. I'll lead!" - Emmanuelle Heyman
 
 ---
 
-"The only way you are ever going to get others to value your time is if you value it first."
- - C.C. Chapman
+"We are all in the gutter, but some of us are looking at the stars." - Oscar Wilde
 
 ---
 
-"Living your life on the road less travelled is never easy. It will be covered in plenty of things to trip you up and block your progress. There will be days when you don't know what is around the next corner or where exactly you may be heading, and that can be unsettling to some."
- - C.C. Chapman
+"The only way you are ever going to get others to value your time is if you value it first." - C.C. Chapman
 
 ---
 
-"Do not go where the path may lead, go instead where there is no path and leave a trail!"
- - Ralph Waldo Emerson
+"Living your life on the road less travelled is never easy. It will be covered in plenty of things to trip you up and block your progress. There will be days when you don't know what is around the next corner or where exactly you may be heading, and that can be unsettling to some." - C.C. Chapman
 
 ---
 
-"If you aren't willing to sacrifice your comfort, you don't have what it take to be successful."
- - Julien Smith
+"Do not go where the path may lead, go instead where there is no path and leave a trail!" - Ralph Waldo Emerson
 
 ---
 
-"Sometimes those who have less, give more."
- - Unknown
+"If you aren't willing to sacrifice your comfort, you don't have what it take to be successful." - Julien Smith
 
 ---
 
-"Any day you are not sick and are above ground is a good day."
- - C.C. Chapman
+"Sometimes those who have less, give more." - Unknown
 
 ---
 
-"If you want to go fast, go alone. If you want to go far, go together."
- - African proverb
+"Any day you are not sick and are above ground is a good day." - C.C. Chapman
 
 ---
 
-"Today is the first day of the rest of your life."
- - Unknown
+"If you want to go fast, go alone. If you want to go far, go together." - African proverb
 
 ---
 
-"Nobody can hurt me without my permission." 
- - Mahatma Gandhi 
+"Today is the first day of the rest of your life." - Unknown
 
 ---
 
-“Sow a thought, reap an action; sow an action, reap a habit; sow a habit, reap a character; sow a character, reap a destiny.” 
- - Stephen R. Covey
+"Nobody can hurt me without my permission." - Mahatma Gandhi
 
 ---
 
-"The journey of a thousand miles begins with one step." 
- - Lao Tzu 
+“Sow a thought, reap an action; sow an action, reap a habit; sow a habit, reap a character; sow a character, reap a destiny.” - Stephen R. Covey
 
 ---
 
-"Jeśli ludzie gadają za Twoimi plecami, to znaczy, że ich wyprzedziłaś." 
- - Unknown
+"The journey of a thousand miles begins with one step." - Lao Tzu
 
 ---
 
- "Nie przejmuj się porażkami, przejmuj się szansami które tracisz, jeśli nie próbujesz."
- - Unknown
+"Jeśli ludzie gadają za Twoimi plecami, to znaczy, że ich wyprzedziłaś." - Unknown
 
 ---
 
-"Your time is limited, so don't waste it living someone else's life."
- - Steve Jobs
+ "Nie przejmuj się porażkami, przejmuj się szansami które tracisz, jeśli nie próbujesz." - Unknown
 
 ---
 
-"Business opportunities are like buses, there's always another one coming." 
- - Richard Branson
+"Your time is limited, so don't waste it living someone else's life." - Steve Jobs
 
 ---
 
-"Success isn't overnight. It’s when every day you get a little better than the day before. It all adds up."
- - Dwayne Johnson
+"Business opportunities are like buses, there's always another one coming." - Richard Branson
 
 ---
 
-"Success isn't always about ‘Greatness’, it’s about consistency. Consistent, hard work gains success. Greatness will come."
- - Dwayne Johnson
+"Success isn't overnight. It’s when every day you get a little better than the day before. It all adds up." - Dwayne Johnson
 
 ---
 
-"Be the person that when your feet touch the floor in the morning, the devil says, “awe shit... they’re up"."
- - Dwayne Johnson
+"Success isn't always about ‘Greatness’, it’s about consistency. Consistent, hard work gains success. Greatness will come." - Dwayne Johnson
 
 ---
 
-"When you walk up to opportunity's door, don't knock on it. Kick that bi*ch in, smile and introduce yourself."
- - Dwayne Johnson
+"Be the person that when your feet touch the floor in the morning, the devil says, “awe shit... they’re up"." - Dwayne Johnson
 
 ---
 
-"Jezeli do tej pory nic nie wychodzilo, czas aby zrobic to zupelnie inczej."
- - Unknown
+"When you walk up to opportunity's door, don't knock on it. Kick that bi*ch in, smile and introduce yourself." - Dwayne Johnson
 
 ---
 
-"An ounce of action is worth a ton of theory."
- - Friedrich Engels
+"Jezeli do tej pory nic nie wychodzilo, czas aby zrobic to zupelnie inczej." - Unknown
 
 ---
 
-"When life changes to be harder, change yourself to be stronger."
- - Unknown
+"An ounce of action is worth a ton of theory." - Friedrich Engels
 
 ---
 
-"Do not judge by appearances; a rich heart may be under a poor coat."
- - Scottish Proverb
+"When life changes to be harder, change yourself to be stronger." - Unknown
 
 ---
 
-"Champions keep going when they don't have anything left in their tank!"
- - Eric Thomas
+"Do not judge by appearances; a rich heart may be under a poor coat." - Scottish Proverb
 
 ---
 
-"Only those who will risk going too far can possibly find out how far one can go." 
- - T. S. Eliot
+"Champions keep going when they don't have anything left in their tank!" - Eric Thomas
 
 ---
 
-“Entrepreneurship is living a few years of your life like most people won’t, so that you can spend the rest of your life like most people can’t.” 
- - Unknown
+"Only those who will risk going too far can possibly find out how far one can go." - T. S. Eliot
 
 ---
 
-“Be more concerned with your character than your reputation, because your character is what you really are, while your reputation is merely what others think you are.” 
- - John Wooden
+“Entrepreneurship is living a few years of your life like most people won’t, so that you can spend the rest of your life like most people can’t.” - Unknown
 
 ---
 
-“I do not know anyone who has got to the top without hard work. That is the recipe. It will not always get you to the top, but should get you pretty near.” 
- - Margaret Thatcher
+“Be more concerned with your character than your reputation, because your character is what you really are, while your reputation is merely what others think you are.” - John Wooden
 
 ---
 
-"There are sometimes in life, where you fall down. Face down. You feel like you don't have the strength to get back up... and if I fail 100 times, if I fail and I give up, do you think I'm ever gonna get up? NO!"
- - Unknown
+“I do not know anyone who has got to the top without hard work. That is the recipe. It will not always get you to the top, but should get you pretty near.” - Margaret Thatcher
 
 ---
 
-“If you want to manage somebody, manage yourself. Do that well, and you’ll be ready to stop managing and start leading.” 
- - Mark Gonzales
+"There are sometimes in life, where you fall down. Face down. You feel like you don't have the strength to get back up... and if I fail 100 times, if I fail and I give up, do you think I'm ever gonna get up? NO!" - Unknown
 
 ---
 
-“It’s not up to you how you fall. It’s up to you how far you let yourself fall and how long it takes you to get back up and stand on your own two feet.” 
- - Sr. Tac Jeffrey Mitchell
+“If you want to manage somebody, manage yourself. Do that well, and you’ll be ready to stop managing and start leading.” - Mark Gonzales
 
 ---
 
-“Success is a personal standard, reaching for the highest that is in us, becoming all that we can be.” 
- - Zig Ziglar
+“It’s not up to you how you fall. It’s up to you how far you let yourself fall and how long it takes you to get back up and stand on your own two feet.” - Sr. Tac Jeffrey Mitchell
 
 ---
 
-“Progress always involves risks. You can’t steal second base and keep your foot on first.” 
- - Frederick B Wilcox
+“Success is a personal standard, reaching for the highest that is in us, becoming all that we can be.” - Zig Ziglar
 
 ---
 
-“No one is going to hand me success. I must go out & get it myself. That’s why I’m here. To dominate. To conquer. Both the world and myself.” 
- - Unknown
+“Progress always involves risks. You can’t steal second base and keep your foot on first.” - Frederick B Wilcox
 
 ---
 
-“You got a dream… You gotta protect it. People can’t do something themselves, they will tell you 'you can’t do it'. If you want something, go get it. Period.” 
- - Will Smith
+“No one is going to hand me success. I must go out & get it myself. That’s why I’m here. To dominate. To conquer. Both the world and myself.” - Unknown
 
 ---
 
-“Always go with your passions. Never ask yourself if it’s realistic or not.” 
- - Deepak Chopra
+“You got a dream… You gotta protect it. People can’t do something themselves, they will tell you 'you can’t do it'. If you want something, go get it. Period.” - Will Smith
 
 ---
 
-“Every single thing that has ever happened in your life is preparing you for a moment that is yet to come.”
+“Always go with your passions. Never ask yourself if it’s realistic or not.” - Deepak Chopra
 
- - Anonymous
-
 ---
 
-“A year from now you may wish you started today.” 
- - Karen Lamb
+“Every single thing that has ever happened in your life is preparing you for a moment that is yet to come.” - Anonymous
 
 ---
 
-“People need to wake up and realise that life doesn’t wait for you. If you want something, get up and go after it.” 
- - Robert Kiyosaki
+“A year from now you may wish you started today.” - Karen Lamb
 
 ---
 
-“If you risk nothing, then you risk everything.” 
- - Geena Davis
+“People need to wake up and realise that life doesn’t wait for you. If you want something, get up and go after it.” - Robert Kiyosaki
 
 ---
 
-“Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.” 
- - Jamie Paolinetti
+“If you risk nothing, then you risk everything.” - Geena Davis
 
 ---
 
-“I can conquer the world with one hand, as long as you’re holding the other.” 
- - Unknown
+“Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.” - Jamie Paolinetti
 
 ---
 
-"Walk away from anything or anyone who takes away from your joy. Life is too short to put up with fools."
- - Unknown
+“I can conquer the world with one hand, as long as you’re holding the other.” - Unknown
 
 ---
 
-"Some things will come to you, but the success will not come to you. Some things you gotta take... by force!"
- - Unknown
+"Walk away from anything or anyone who takes away from your joy. Life is too short to put up with fools." - Unknown
 
 ---
 
-“If you do tomorrow what you did today, you will get tomorrow what you got today.” 
- - Benjamin Franklin
+"Some things will come to you, but the success will not come to you. Some things you gotta take... by force!" - Unknown
 
 ---
 
-"If you're not making someone else's life better, you're wasting your time."  
- - Will Smith
+“If you do tomorrow what you did today, you will get tomorrow what you got today.” - Benjamin Franklin
 
 ---
 
-"Why fit in when you were born to stand out?" 
- - Dr Seuss 
+"If you're not making someone else's life better, you're wasting your time." - Will Smith
 
 ---
 
-"When life knocks you down, jump back up and say "It is not over until I win!""
- - Unknown
+"Why fit in when you were born to stand out?" - Dr Seuss
 
 ---
 
-"All of us have hard times. They have not come to stay, it has come to pass."  
- - Unknown
+"When life knocks you down, jump back up and say "It is not over until I win!"" - Unknown
 
 ---
 
-"When you fall, fall forward."
- - Unknown 
+"All of us have hard times. They have not come to stay, it has come to pass." - Unknown
 
 ---
 
-"Yes, we are tired. Yes, we are hungry. Yes, the mind is saying "Quit!". But, we can not quit, because we will realise that we have not reached the goal yet."
- - Unknown
+"When you fall, fall forward." - Unknown
 
 ---
 
-"Money buys happiness only when it is spent on experiences." 
- - Mark Manson
+"Yes, we are tired. Yes, we are hungry. Yes, the mind is saying "Quit!". But, we can not quit, because we will realise that we have not reached the goal yet." - Unknown
 
 ---
 
-"The distance between insanity and genius is measured only by success." 
- - Bruce Feirstein
+"Money buys happiness only when it is spent on experiences." - Mark Manson
 
 ---
 
-"Don’t cry because it’s over, smile because it happened."
--Dr. Seuss
+"The distance between insanity and genius is measured only by success." - Bruce Feirstein
 
 ---
 
-"There are great people all over the world chasing their ambition, what are you waiting for?"
- - Unknown
+"Don’t cry because it’s over, smile because it happened." - Dr. Seuss
 
 ---
 
-"If I don't dedicate 110% of my energy to that what I want to achieve, I'm only wasting my time!"
- - Unknown
+"There are great people all over the world chasing their ambition, what are you waiting for?" - Unknown
 
 ---
 
-"The greatest accomplishment is not in never falling, but in rising again after you fall." 
- - Vince Lombardi
+"If I don't dedicate 110% of my energy to that what I want to achieve, I'm only wasting my time!" - Unknown
 
 ---
 
-"I have to believe that when things are bad, you can change them." 
- - Jim Braddock
+"The greatest accomplishment is not in never falling, but in rising again after you fall." - Vince Lombardi
 
 ---
 
-"If you're going to be successful you've got to be willing to give up sleep."
- - Unknown
+"I have to believe that when things are bad, you can change them." - Jim Braddock
 
 ---
 
-"Wealth is a state of mind."
- - Unknown
+"If you're going to be successful you've got to be willing to give up sleep." - Unknown
 
 ---
 
-"Success is the progressive realization of a worthy goal or ideal."
- - Unknown
+"Wealth is a state of mind." - Unknown
 
 ---
 
-“What’s the difference between a madman and a bold genius? Madman is somebody who does the same action over and over and over for an unknown destiny. A bold genius is somebody who does the same action over and over and over again for a known destiny.”
- - Unknown
+"Success is the progressive realization of a worthy goal or ideal." - Unknown
 
 ---
 
-“The future is not a gift, it is an achievement.”
- - Albert Einstein
+“What’s the difference between a madman and a bold genius? Madman is somebody who does the same action over and over and over for an unknown destiny. A bold genius is somebody who does the same action over and over and over again for a known destiny.” - Unknown
 
 ---
 
-"There are only two days in the year that nothing can be done. One is called yesterday, and other is called tomorrow, so today is the right day to love, believe, do and mostly live."
- - Dalai Lama
+“The future is not a gift, it is an achievement.” - Albert Einstein
 
 ---
 
-"Sacrifice your current self for your future self."
- - Unknown
+"There are only two days in the year that nothing can be done. One is called yesterday, and other is called tomorrow, so today is the right day to love, believe, do and mostly live." - Dalai Lama
 
 ---
 
-"What you think, you become."
- - Unknown
+"Sacrifice your current self for your future self." - Unknown
 
 ---
 
-"Success does not require you to look out the window. It only requires you to look in the mirror."
- - Unknown
+"What you think, you become." - Unknown
 
 ---
 
-"You're scared that you aren't perfect. But you don't have to be perfect to get what you want, to do what you want, to have what you want, to be what you want. You don't have to be perfect! IT'S A LIE!"
- - Unknown
+"Success does not require you to look out the window. It only requires you to look in the mirror." - Unknown
 
 ---
 
-“When there is no enemy within, the enemies outside cannot hurt you.”  
- - Winston S. Churchill
+"You're scared that you aren't perfect. But you don't have to be perfect to get what you want, to do what you want, to have what you want, to be what you want. You don't have to be perfect! IT'S A LIE!" - Unknown
 
 ---
 
-“Knowledge is a store of information. Understanding is an ability to use that store.”
- - Unknown
+“When there is no enemy within, the enemies outside cannot hurt you.” - Winston S. Churchill
 
 ---
 
-"Ten który podąża za tłumem zapewne nie dojdzie dalej niż tłum. Ten który idzie sam, ma szansę znaleźć się tam gdzie nikogo jeszcze nie było!""
- - Unknown
+“Knowledge is a store of information. Understanding is an ability to use that store.” - Unknown
 
 ---
 
-Be adventures, take a risk!"
- - Unknown
+"Ten który podąża za tłumem zapewne nie dojdzie dalej niż tłum. Ten który idzie sam, ma szansę znaleźć się tam gdzie nikogo jeszcze nie było!"" - Unknown
 
 ---
 
-"Remember! God doesn't like cowards."
- - Unknown
+Be adventures, take a risk!" - Unknown
 
 ---
 
-“The elevator to success is out of order. You’ll have to use the stairs… One step at a time.” 
- - Rande Wilson
+"Remember! God doesn't like cowards." - Unknown
 
 ---
 
-"If I have got any brothers out there, any fighters out there, any athletes out there I have to be confident to hit the wall."
- - Unknown
+“The elevator to success is out of order. You’ll have to use the stairs… One step at a time.” - Rande Wilson
 
 ---
 
-"The war has begun, and it's between you and you. There ain't nobody else in your way. I've heard it all from I'm too small, I'm not fast enough, I'm not strong enough, I can't make it back. This is what it takes. This is the sacrifice made for a greater good, its called dedication..."
- - Unknown
+"If I have got any brothers out there, any fighters out there, any athletes out there I have to be confident to hit the wall." - Unknown
 
 ---
 
-"Get comfortable being uncomfortable!"
- - Unknown
+"The war has begun, and it's between you and you. There ain't nobody else in your way. I've heard it all from I'm too small, I'm not fast enough, I'm not strong enough, I can't make it back. This is what it takes. This is the sacrifice made for a greater good, its called dedication..." - Unknown
 
 ---
 
-“Pain is temporary. It may last a minute, or an hour, or a day, or a year, but eventually it will subside, and something else will take its place. If I quit, however, it lasts forever.”
- - Lance Armstrong
+"Get comfortable being uncomfortable!" - Unknown
 
 ---
 
-"I gotta push it to the limit, I gotta be willing to hit the wall, I gotta be willing to past crying, hunger, I gotta get past self-defeating saying you cannot do it, I gotta get past low self-esteem!"
- - Unknown
+“Pain is temporary. It may last a minute, or an hour, or a day, or a year, but eventually it will subside, and something else will take its place. If I quit, however, it lasts forever.” - Lance Armstrong
 
 ---
 
-“Nothing can stop the man with the right mental attitude from achieving his goal.” 
- - Thomas Jefferson
+"I gotta push it to the limit, I gotta be willing to hit the wall, I gotta be willing to past crying, hunger, I gotta get past self-defeating saying you cannot do it, I gotta get past low self-esteem!" - Unknown
 
 ---
 
-"You're already in pain, you're already hurt, get a reward from it!"
- - Unknown
+“Nothing can stop the man with the right mental attitude from achieving his goal.” - Thomas Jefferson
 
 ---
 
-"Your future does not happen, you create it!"
- - Bill Cullen
+"You're already in pain, you're already hurt, get a reward from it!" - Unknown
 
 ---
 
-"If the only tool you have is a hammer, you will tend to see every problem as a nail."
- - Unknown
+"Your future does not happen, you create it!" - Bill Cullen
 
 ---
 
-"Someday you are the dog, another day you are the tree. Get over it!"
- - Unknown
+"If the only tool you have is a hammer, you will tend to see every problem as a nail." - Unknown
 
 ---
 
-"There comes the point when you have to realise you’ll never be good enough for some people. The question is, is that your problem or theirs?"
- - Unknown
+"Someday you are the dog, another day you are the tree. Get over it!" - Unknown
 
 ---
 
-"Muhammad Ali was once asked by a reporter "How many sit-ups do you do?". He answered "I don’t count my sit-ups. I only start counting when it starts hurting because then it really counts.""
+"There comes the point when you have to realise you’ll never be good enough for some people. The question is, is that your problem or theirs?" - Unknown
+
+---
 
- - Muhammad Ali
+"Muhammad Ali was once asked by a reporter "How many sit-ups do you do?". He answered "I don’t count my sit-ups. I only start counting when it starts hurting because then it really counts."" - Muhammad Ali
 
 ---
 
-"Fear is not real, the only place that fear can exist is in our thoughts of the future. It is a product of our imagination, causing us to fear things that do not at present and may not ever exist. Don't understand me wrong, the danger is very real, but fear is a choice!"
- - Will Smith in "After Earth"
+"Fear is not real, the only place that fear can exist is in our thoughts of the future. It is a product of our imagination, causing us to fear things that do not at present and may not ever exist. Don't understand me wrong, the danger is very real, but fear is a choice!" - Will Smith in "After Earth"
 
 ---
 
-"I've missed more than 9000 shots in my career. I've lost almost 300 games. 26 times, I've been trusted to take the game-winning shot and missed. I've failed over and over and over again in my life. And that is why I succeed."
- - Michael Jordan
+"I've missed more than 9000 shots in my career. I've lost almost 300 games. 26 times, I've been trusted to take the game-winning shot and missed. I've failed over and over and over again in my life. And that is why I succeed." - Michael Jordan
 
 ---
 
-"In the end, it's not going to matter how many breaths you took, but how many moments took your breath away."
- - Shing Xiong
+"In the end, it's not going to matter how many breaths you took, but how many moments took your breath away." - Shing Xiong
 
 ---
 
-"Somewhere he is out there, training while I am not. One day, when we meet, he will win." 
- - Tim Tebow
+"Somewhere he is out there, training while I am not. One day, when we meet, he will win." - Tim Tebow
 
 ---
 
-“Live every day as if it were your last because someday you’re going to be right.” 
- - Muhammad Ali
+“Live every day as if it were your last because someday you’re going to be right.” - Muhammad Ali
 
 ---
 
-"Always give people more than what they expect to get." 
- - Nelson Boswell
+"Always give people more than what they expect to get." - Nelson Boswell
 
 ---
 
-"When one door closes, another opens; but we often look so long and so regretfully upon the closed door that we do not see the one that has opened for us." 
- - Alexander Graham Bell
+"When one door closes, another opens; but we often look so long and so regretfully upon the closed door that we do not see the one that has opened for us." - Alexander Graham Bell
 
 ---
 
-"Dziś zrób to czego innym się nie chce a jutro będziesz miał to czego inni pragną"
- - Unknown
+"Dziś zrób to czego innym się nie chce a jutro będziesz miał to czego inni pragną." - Unknown
 
 ---
 
-"Every day try to be a better person than yesterday."
- - Unknown
+"Every day try to be a better person than yesterday." - Unknown
 
 ---
 
-"Have a plan, and work a plan!"'
- - Unknown
+"Have a plan, and work a plan!" - Unknown
 
 ---
 
-"You will never influence the world by trying to be like it."
- - Unknown
+"You will never influence the world by trying to be like it." - Unknown
 
 ---
 
