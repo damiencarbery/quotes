@@ -1,8 +1,11 @@
-"The day before something is a breakthrough, it's a crazy idea."
-- Peter Diamandis
+> "The day before something is a breakthrough, it's a crazy idea." 
 
-"Without a target, you'll miss it every time."
-- Peter Diamandis
+<span>-</span> Peter Diamandis
+
+
+> "Without a target, you'll miss it every time."
+
+<span>-</span> Peter Diamandis
 
 
 
@@ -12,24 +15,33 @@
 
 The teach gets up to prepare a large pot of coffee and comes back with a tray that contains a variety of cups. Some are made of Cristal, some are made of silver, and some are cheap plastic cups. He asks his students to pour the coffee, and they all reach for most beautiful and expensive cups available. When they sit back down the teacher acknowledges the most beautiful cups, but then point out that what they all really wanted was coffee. Regardless of the cup, the coffee was the same. 
 
-"If social status, fashion, image position, social accepting are like the cup," he says, "then the life is like the coffee. Why do we try so hard to drink from a fancy cup, when all we want is good coffee. If you want to leave a stress-free life” he says, "ignore the cup and just enjoy the coffee."
-- An Arabian folktale
+"If social status, fashion, image position, social accepting are like the cup," he says, "then the life is like the coffee. Why do we try so hard to drink from a fancy cup, when all we want is good coffee. If you want to leave a stress-free life” he says, "ignore the cup and just enjoy the coffee." 
 
+<span>-</span> An Arabian folktale
+
+---
 
 
 
 
 "If you think it's impossible, then it is, for you."
-- Unknown
+
+<span>-</span> Unknown
+---
 
 "Ideas are cheap. Everyone can have one."
-- Unknown
+
+<span>-</span> Unknown
+---
 
 "The difference between great work and an idea for great work is am the sweat, time, effort and agony that go into engaging great idea and turning it into something real."
-- Unknown
+
+<span>-</span> Unknown
+---
 
 "If you are not perfect in every facet, you are replaceable."
-- Unknown
+
+<span>-</span> Unknown
 
 
 
