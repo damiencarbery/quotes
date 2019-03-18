@@ -1,15 +1,14 @@
-> "The day before something is a breakthrough, it's a crazy idea." 
+"The day before something is a breakthrough, it's a crazy idea." 
 
 <span>-</span> Peter Diamandis
 
+---
 
-> "Without a target, you'll miss it every time."
+"Without a target, you'll miss it every time."
 
 <span>-</span> Peter Diamandis
 
-
-
-
+---
 
 'An old teacher was visited by many of his students, years after they left his class. They talk about how successful they have become in life and showered gratitude on their beloved teacher. Then they all start to talk of the pressure they are facing, the stress they go through to keep up with the expectations. Success is not making them happier. 
 
@@ -21,22 +20,22 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 ---
 
-
-
-
 "If you think it's impossible, then it is, for you."
 
 <span>-</span> Unknown
+
 ---
 
 "Ideas are cheap. Everyone can have one."
 
 <span>-</span> Unknown
+
 ---
 
 "The difference between great work and an idea for great work is am the sweat, time, effort and agony that go into engaging great idea and turning it into something real."
 
 <span>-</span> Unknown
+
 ---
 
 "If you are not perfect in every facet, you are replaceable."
