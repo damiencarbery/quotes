@@ -1,5 +1,9 @@
 # A list of Quotes
 
+"If you want to know how a lion hunts, don't go to the zoo. Go to the jungle." – Jim Stengel
+
+---
+
 "The day before something is a breakthrough, it's a crazy idea." - Peter Diamandis
 
 ---
