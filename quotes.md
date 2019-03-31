@@ -12,9 +12,9 @@
 
 ---
 
-'An old teacher was visited by many of his students, years after they left his class. They talk about how successful they have become in life and showered gratitude on their beloved teacher. Then they all start to talk of the pressure they are facing, the stress they go through to keep up with the expectations. Success is not making them happier. 
+'An old teacher was visited by many of his students, years after they left his class. They talk about how successful they have become in life and showered gratitude on their beloved teacher. Then they all start to talk of the pressure they are facing, the stress they go through to keep up with the expectations. Success is not making them happier.
 
-The teach gets up to prepare a large pot of coffee and comes back with a tray that contains a variety of cups. Some are made of Cristal, some are made of silver, and some are cheap plastic cups. He asks his students to pour the coffee, and they all reach for most beautiful and expensive cups available. When they sit back down the teacher acknowledges the most beautiful cups, but then point out that what they all really wanted was coffee. Regardless of the cup, the coffee was the same. 
+The teach gets up to prepare a large pot of coffee and comes back with a tray that contains a variety of cups. Some are made of crystal, some are made of silver, and some are cheap plastic cups. He asks his students to pour the coffee, and they all reach for most beautiful and expensive cups available. When they sit back down the teacher acknowledges the most beautiful cups, but then point out that what they all really wanted was coffee. Regardless of the cup, the coffee was the same.
 
 "If social status, fashion, image position, social accepting are like the cup," he says, "then the life is like the coffee. Why do we try so hard to drink from a fancy cup, when all we want is good coffee. If you want to leave a stress-free life” he says, "ignore the cup and just enjoy the coffee."  - An Arabian folktale
 
@@ -98,7 +98,7 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 ---
 
-"It’s one thing to write code; it’s another to get it to run." - Unknown
+"It's one thing to write code; it's another to get it to run." - Unknown
 
 ---
 
@@ -206,7 +206,7 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 ---
 
-"Don’t try to be better than your competitors, try to be different." - Unknown
+"Don't try to be better than your competitors, try to be different." - Unknown
 
 ---
 
@@ -250,7 +250,7 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 ---
 
-"You’ll only pull off "you have to fail to succeed" approach if you create an environment where it’s safe to fail, where nobody is pointing fingers or looking to blame others when something doesn’t work out as planned. You need to take risks as a team. We share in each other’s successes, and we learn together when we fail." - Logan Smalley
+"You'll only pull off "you have to fail to succeed" approach if you create an environment where it's safe to fail, where nobody is pointing fingers or looking to blame others when something doesn't work out as planned. You need to take risks as a team. We share in each other's successes, and we learn together when we fail." - Logan Smalley
 
 ---
 
@@ -262,7 +262,7 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 ---
 
-“The hero and the coward both feel the same thing. But the hero uses his fear, projects it onto his opponent, while the coward runs. It’s the same thing, fear, but it’s what you do with it that matters.” - Cus D'amato
+“The hero and the coward both feel the same thing. But the hero uses his fear, projects it onto his opponent, while the coward runs. It's the same thing, fear, but it's what you do with it that matters.” - Cus D'amato
 
 ---
 
@@ -310,7 +310,7 @@ you are more blessed than almost three billion people in the world.
 
 If you have food in your refrigerator, clothes on your back, a roof over your head and a place to sleep, you are richer than 75% of this world.
 
-If you have money in the bank, in your wallet, and spare change in a dish someplace, you are among the top 8% of the world's wealthy.
+If you have money in the bank, in your wallet, and spare change in a dish some place, you are among the top 8% of the world's wealthy.
 
 If your parents are still married and alive, you are very rare, especially in this country Smile on your face
 
@@ -379,7 +379,7 @@ You are so blessed in ways you may never even know." - Unknown
 
 ---
 
-"There are no dumb questions. It’s just dumb not to ask." - Unknown
+"There are no dumb questions. It's just dumb not to ask." - Unknown
 
 ---
 
@@ -451,7 +451,7 @@ You are so blessed in ways you may never even know." - Unknown
 
 ---
 
-"Ideas are worthless until we act on them." - Unknow
+"Ideas are worthless until we act on them." - Unknown
 
 ---
 
@@ -483,7 +483,7 @@ You are so blessed in ways you may never even know." - Unknown
 
 ---
 
-"If you don’t like the world, then change it." - Unknown
+"If you don't like the world, then change it." - Unknown
 
 ---
 
@@ -611,11 +611,11 @@ You are so blessed in ways you may never even know." - Unknown
 
 ---
 
-"Can’t couldn’t do it. Could did it all!" - Nanny Lou
+"Can't couldn't do it. Could did it all!" - Nanny Lou
 
 ---
 
-"Don’t think about competition. Think about domination." - Unknown
+"Don't think about competition. Think about domination." - Unknown
 
 ---
 
@@ -675,11 +675,11 @@ You are so blessed in ways you may never even know." - Unknown
 
 ---
 
-"You’re not much of an entrepreneur, in my opinion, if you don’t have the guts to ride the bull." - Kori Ashton
+"You're not much of an entrepreneur, in my opinion, if you don't have the guts to ride the bull." - Kori Ashton
 
 ---
 
-"It’s OK to quit today, as long as you show up for work tomorrow." - Unknown
+"It's OK to quit today, as long as you show up for work tomorrow." - Unknown
 
 ---
 
@@ -687,7 +687,7 @@ You are so blessed in ways you may never even know." - Unknown
 
 ---
 
-“Don’t become a wandering generality. Be a meaningful specific.” - Zig Ziglar
+“Don't become a wandering generality. Be a meaningful specific.” - Zig Ziglar
 
 ---
 
@@ -939,7 +939,7 @@ but whatever you do, you have to keep moving forward." - Martin Luther King Jr.
 
 ---
 
-"There is a difference between your mind saying you can’t and your body saying you can’t." - Unknown
+"There is a difference between your mind saying you can't and your body saying you can't." - Unknown
 
 ---
 
@@ -951,7 +951,7 @@ but whatever you do, you have to keep moving forward." - Martin Luther King Jr.
 
 ---
 
-“It’s not the customer’s job to know what they want.” - Steve Jobs
+“It's not the customer's job to know what they want.” - Steve Jobs
 
 ---
 
@@ -1075,15 +1075,15 @@ but whatever you do, you have to keep moving forward." - Martin Luther King Jr.
 
 ---
 
-"Success isn't overnight. It’s when every day you get a little better than the day before. It all adds up." - Dwayne Johnson
+"Success isn't overnight. It's when every day you get a little better than the day before. It all adds up." - Dwayne Johnson
 
 ---
 
-"Success isn't always about ‘Greatness’, it’s about consistency. Consistent, hard work gains success. Greatness will come." - Dwayne Johnson
+"Success isn't always about ‘Greatness', it's about consistency. Consistent, hard work gains success. Greatness will come." - Dwayne Johnson
 
 ---
 
-"Be the person that when your feet touch the floor in the morning, the devil says, “awe shit... they’re up"." - Dwayne Johnson
+"Be the person that when your feet touch the floor in the morning, the devil says, “awe shit... they're up"." - Dwayne Johnson
 
 ---
 
@@ -1115,7 +1115,7 @@ but whatever you do, you have to keep moving forward." - Martin Luther King Jr.
 
 ---
 
-“Entrepreneurship is living a few years of your life like most people won’t, so that you can spend the rest of your life like most people can’t.” - Unknown
+“Entrepreneurship is living a few years of your life like most people won't, so that you can spend the rest of your life like most people can't.” - Unknown
 
 ---
 
@@ -1131,11 +1131,11 @@ but whatever you do, you have to keep moving forward." - Martin Luther King Jr.
 
 ---
 
-“If you want to manage somebody, manage yourself. Do that well, and you’ll be ready to stop managing and start leading.” - Mark Gonzales
+“If you want to manage somebody, manage yourself. Do that well, and you'll be ready to stop managing and start leading.” - Mark Gonzales
 
 ---
 
-“It’s not up to you how you fall. It’s up to you how far you let yourself fall and how long it takes you to get back up and stand on your own two feet.” - Sr. Tac Jeffrey Mitchell
+“It's not up to you how you fall. It's up to you how far you let yourself fall and how long it takes you to get back up and stand on your own two feet.” - Sr. Tac Jeffrey Mitchell
 
 ---
 
@@ -1143,19 +1143,19 @@ but whatever you do, you have to keep moving forward." - Martin Luther King Jr.
 
 ---
 
-“Progress always involves risks. You can’t steal second base and keep your foot on first.” - Frederick B Wilcox
+“Progress always involves risks. You can't steal second base and keep your foot on first.” - Frederick B Wilcox
 
 ---
 
-“No one is going to hand me success. I must go out & get it myself. That’s why I’m here. To dominate. To conquer. Both the world and myself.” - Unknown
+“No one is going to hand me success. I must go out & get it myself. That's why I'm here. To dominate. To conquer. Both the world and myself.” - Unknown
 
 ---
 
-“You got a dream… You gotta protect it. People can’t do something themselves, they will tell you 'you can’t do it'. If you want something, go get it. Period.” - Will Smith
+“You got a dream… You gotta protect it. People can't do something themselves, they will tell you 'you can't do it'. If you want something, go get it. Period.” - Will Smith
 
 ---
 
-“Always go with your passions. Never ask yourself if it’s realistic or not.” - Deepak Chopra
+“Always go with your passions. Never ask yourself if it's realistic or not.” - Deepak Chopra
 
 ---
 
@@ -1167,7 +1167,7 @@ but whatever you do, you have to keep moving forward." - Martin Luther King Jr.
 
 ---
 
-“People need to wake up and realise that life doesn’t wait for you. If you want something, get up and go after it.” - Robert Kiyosaki
+“People need to wake up and realise that life doesn't wait for you. If you want something, get up and go after it.” - Robert Kiyosaki
 
 ---
 
@@ -1179,7 +1179,7 @@ but whatever you do, you have to keep moving forward." - Martin Luther King Jr.
 
 ---
 
-“I can conquer the world with one hand, as long as you’re holding the other.” - Unknown
+“I can conquer the world with one hand, as long as you're holding the other.” - Unknown
 
 ---
 
@@ -1227,7 +1227,7 @@ but whatever you do, you have to keep moving forward." - Martin Luther King Jr.
 
 ---
 
-"Don’t cry because it’s over, smile because it happened." - Dr. Seuss
+"Don't cry because it's over, smile because it happened." - Dr. Seuss
 
 ---
 
@@ -1259,7 +1259,7 @@ but whatever you do, you have to keep moving forward." - Martin Luther King Jr.
 
 ---
 
-“What’s the difference between a madman and a bold genius? Madman is somebody who does the same action over and over and over for an unknown destiny. A bold genius is somebody who does the same action over and over and over again for a known destiny.” - Unknown
+“What's the difference between a madman and a bold genius? Madman is somebody who does the same action over and over and over for an unknown destiny. A bold genius is somebody who does the same action over and over and over again for a known destiny.” - Unknown
 
 ---
 
@@ -1307,7 +1307,7 @@ Be adventures, take a risk!" - Unknown
 
 ---
 
-“The elevator to success is out of order. You’ll have to use the stairs… One step at a time.” - Rande Wilson
+“The elevator to success is out of order. You'll have to use the stairs… One step at a time.” - Rande Wilson
 
 ---
 
@@ -1351,11 +1351,11 @@ Be adventures, take a risk!" - Unknown
 
 ---
 
-"There comes the point when you have to realise you’ll never be good enough for some people. The question is, is that your problem or theirs?" - Unknown
+"There comes the point when you have to realise you'll never be good enough for some people. The question is, is that your problem or theirs?" - Unknown
 
 ---
 
-"Muhammad Ali was once asked by a reporter "How many sit-ups do you do?". He answered "I don’t count my sit-ups. I only start counting when it starts hurting because then it really counts."" - Muhammad Ali
+"Muhammad Ali was once asked by a reporter "How many sit-ups do you do?". He answered "I don't count my sit-ups. I only start counting when it starts hurting because then it really counts."" - Muhammad Ali
 
 ---
 
@@ -1375,7 +1375,7 @@ Be adventures, take a risk!" - Unknown
 
 ---
 
-“Live every day as if it were your last because someday you’re going to be right.” - Muhammad Ali
+“Live every day as if it were your last because someday you're going to be right.” - Muhammad Ali
 
 ---
 
