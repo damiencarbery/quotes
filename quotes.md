@@ -1,5 +1,9 @@
 # A list of Quotes
 
+"A genius is not born, but educated and trained." - László Polgár
+
+---
+
 "If you want to know how a lion hunts, don't go to the zoo. Go to the jungle." – Jim Stengel
 
 ---
