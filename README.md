@@ -6,6 +6,14 @@ I hope you find something interesting here.
 
 ## A list of Quotes
 
+"Out of every one hundred men, ten shouldn't even be there, eighty are just targets, nine are the real fighters, and we are lucky to have them, for they make the battle. Ah, but the one, one is a warrior, and he will bring the others back." ― Heraclitus
+
+---
+
+"Education is a process of self-discovery." - Tara Westover
+
+---
+
 "A genius is not born, but educated and trained." - László Polgár
 
 ---
