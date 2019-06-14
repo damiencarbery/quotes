@@ -6,6 +6,22 @@ I hope you find something interesting here.
 
 ## A list of Quotes
 
+"Nobody cares how much you know, until they know how much you care." - Theodore Roosevelt
+
+---
+
+"The more you learn the more you earn." - Warren Buffett
+
+---
+
+“What is the difference between a hero and a coward? No difference, only what you do. They both feel the same. They both fear dying and being hurt. The coward refuses to face up what he’s got to face. The hero is more disciplined and he fights those feelings off and he does what he has to do. But they both feel the same. The hero and the coward. People who watch you judge you on what you do, not how you feel.” - Cus D'Amato
+
+---
+
+“When nothing seems to help, I go and look at a stonecutter hammering away at his rock, perhaps a hundred times without as much as a crack showing in it. Yet at the hundred and first blow it will split in two, and I know it was not that last blow that did it—but all that had gone before.” - Jacob Riis
+
+---
+
 "First do it, then do it right, then do it better." - Addy Osmani
 
 ---
