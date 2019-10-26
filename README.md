@@ -6,6 +6,10 @@ I hope you find something interesting here.
 
 ## A list of Quotes
 
+"If you feel like you don't fit into the world you inherited it is because you were born to help create a new one." - Ross Caligiuri
+
+---
+
 "Nobody cares how much you know, until they know how much you care." - Theodore Roosevelt
 
 ---
