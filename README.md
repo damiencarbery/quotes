@@ -108,7 +108,7 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 ---
 
-"The difference between a demanding and not demanding reader is that the later ask no questions and get no answerer." - Unknown
+"The difference between a demanding and not demanding reader is that the latter ask no questions and get no answerer." - Unknown
 
 ---
 
@@ -144,7 +144,7 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 ---
 
-"When you have confidence, you can have a lot of fun. When you have a lot of fun, you can do amazing things.” - John Namath
+"When you have confidence, you can have a lot of fun. When you have a lot of fun, you can do amazing things.” - Joe Namath
 
 ---
 
@@ -200,7 +200,7 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 ---
 
-"Even champions loose rounds." - Gary Vaynerchuk
+"Even champions lose rounds." - Gary Vaynerchuk
 
 ---
 
@@ -208,7 +208,7 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 ---
 
-"In the past, we learned in order to work. Now and into the future, we must work to  learn. Those who continuously learn will continue to lead." - Unknown
+"In the past, we learned in order to work. Now and into the future, we must work to learn. Those who continuously learn will continue to lead." - Unknown
 
 ---
 
