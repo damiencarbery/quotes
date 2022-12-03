@@ -56,9 +56,9 @@ I hope you find something interesting here.
 
 'An old teacher was visited by many of his students, years after they left his class. They talk about how successful they have become in life and showered gratitude on their beloved teacher. Then they all start to talk of the pressure they are facing, the stress they go through to keep up with the expectations. Success is not making them happier.
 
-The teach gets up to prepare a large pot of coffee and comes back with a tray that contains a variety of cups. Some are made of crystal, some are made of silver, and some are cheap plastic cups. He asks his students to pour the coffee, and they all reach for most beautiful and expensive cups available. When they sit back down the teacher acknowledges the most beautiful cups, but then point out that what they all really wanted was coffee. Regardless of the cup, the coffee was the same.
+The teacher gets up to prepare a large pot of coffee and comes back with a tray that contains a variety of cups. Some are made of crystal, some are made of silver, and some are cheap plastic cups. He asks his students to pour the coffee, and they all reach for most beautiful and expensive cups available. When they sit back down the teacher acknowledges the most beautiful cups, but then point out that what they all really wanted was coffee. Regardless of the cup, the coffee was the same.
 
-"If social status, fashion, image position, social accepting are like the cup," he says, "then the life is like the coffee. Why do we try so hard to drink from a fancy cup, when all we want is good coffee. If you want to leave a stress-free life” he says, "ignore the cup and just enjoy the coffee."  - An Arabian folktale
+"If social status, fashion, image position, social accepting are like the cup," he says, "then the life is like the coffee. Why do we try so hard to drink from a fancy cup, when all we want is good coffee. If you want to live a stress-free life” he says, "ignore the cup and just enjoy the coffee."  - An Arabian folktale
 
 ---
 
@@ -70,7 +70,7 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 ---
 
-"The difference between great work and an idea for great work is am the sweat, time, effort and agony that go into engaging great idea and turning it into something real." - Unknown
+"The difference between great work and an idea for great work is the sweat, time, effort and agony that go into engaging a great idea and turning it into something real." - Unknown
 
 ---
 
@@ -108,7 +108,7 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 ---
 
-"The difference between a demanding and not demanding reader is that the later ask no questions and get no answerer." - Unknown
+"The difference between a demanding and undemanding reader is that the latter ask no questions and get no answer." - Unknown
 
 ---
 
@@ -148,7 +148,7 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 ---
 
-"The devil you know is more fun to do battle with, than the devil you don't know." - Unknown
+"The devil you know is more fun to do battle with than the devil you don't know." - Unknown
 
 ---
 
@@ -196,11 +196,11 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 ---
 
-"Practice, practice, practice! It's not like the practice make perfection, but it makes progress." - Unknown
+"Practice, practice, practice! It's not like the practice makes perfection, but it makes progress." - Unknown
 
 ---
 
-"Even champions loose rounds." - Gary Vaynerchuk
+"Even champions lose rounds." - Gary Vaynerchuk
 
 ---
 
@@ -208,7 +208,7 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 ---
 
-"In the past, we learned in order to work. Now and into the future, we must work to  learn. Those who continuously learn will continue to lead." - Unknown
+"In the past, we learned in order to work. Now and into the future, we must work to learn. Those who continuously learn will continue to lead." - Unknown
 
 ---
 
@@ -232,7 +232,7 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 ---
 
-"If at first, you don't succeed, try, try again."  - William Edward Hickson
+"If at first you don't succeed, try, try again."  - William Edward Hickson
 
 ---
 
@@ -240,7 +240,7 @@ The teach gets up to prepare a large pot of coffee and comes back with a tray th
 
 ---
 
-"The right to read Is the right to mine." - Unknown
+"The right to read is the right to mine." - Unknown
 
 ---
 
